@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning about **various Generative AI libraries**
 
-- ⭐ My hobbies are **watching sports, travelling and playing videogames!**
+- ⭐ My hobbies are **watching sports, travelling, and playing videogames!**
 
 - 📫 How to reach me **at my linkedin, Manas Singh, or my instagram manas.singh25**
 
