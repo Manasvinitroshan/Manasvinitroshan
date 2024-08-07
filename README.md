@@ -9,7 +9,6 @@
 
 - 📫 How to reach me **at my linkedin, Manas Singh, or my instagram manas.singh25**
 
-<h3 align="left">Connect with me:</h3>
 <p align="left">
 </p>
 
